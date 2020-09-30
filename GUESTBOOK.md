@@ -34,3 +34,6 @@ Hey check out my app if you have Android! [Trickshott](https://play.google.com/s
 
 ### Suhail Merali
 [idk what to put here](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+
+### James Parkington
+Just call me Parky. 그리고 혹시 한국어 하실 수 있는 분 계신가요?
